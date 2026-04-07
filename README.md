@@ -1,4 +1,4 @@
-# Hi, I'm Conor He 👋
+# Hi, I'm Conor He（科研搬砖版） 👋
 
 🎓 硕士生 @ 西南交通大学  
 📍 中国 · 成都  
